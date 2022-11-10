@@ -10,5 +10,5 @@
 
 Как со мной связаться
 
-Telegram: https://telegram.me/tesl_anastasi
-Email: teslina2@gmail.com или teslina.anastacia@yandex.ru
+- Telegram: https://telegram.me/tesl_anastasi
+- Email: teslina2@gmail.com или teslina.anastacia@yandex.ru
